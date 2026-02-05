@@ -60,7 +60,6 @@ If you like this project, please support me:
 - GitHub: https://github.com/bunsai090
 - TikTok: https://www.tiktok.com/@buunsai?lang=en
 
-I have added your links above. If you'd like your Discord link added, provide the URL and I'll update the README.
 
 Thanks for the support—if you want me to insert any other handles directly, tell me and I'll do it.
 # Lyrics Code TikTok
